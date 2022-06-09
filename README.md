@@ -1,4 +1,4 @@
-![](https://media4.giphy.com/media/ZFtvuSCT2fGVl34Wpi/200w.webp?cid=ecf05e47tnqsko52jq3bqmt8dtyxtthfl35bjh157frgrovb&rid=200w.webp)
+<img width="1523" alt="Screen Shot 2022-06-09 at 5 14 01 PM" src="https://user-images.githubusercontent.com/20063083/172868484-30910cf1-aa38-4624-959a-59363bb5f965.png">
 
 
 
